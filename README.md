@@ -1,5 +1,5 @@
 SANIYA ASIM
-> I have completed my secondary education from Karachi board from White House Grammar School \ 
+> I have completed my secondary education from Karachi board from White House Grammar School\ 
 > I have completed my higher secondary education from Karachi board from GDSC.Malir Cantt \
 > And Alhamdulillah I got A1 grade in all my board exams \
 > I am recently becoming a software engineere from FAST UNIVERSITY \
